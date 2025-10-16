@@ -1,4 +1,4 @@
-# RP_Surname1_Surname2_Surname3_25
+# RP_Manzella_Vairo_Mayi_25
 
 ## Purple Player Game
 
